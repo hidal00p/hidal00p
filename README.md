@@ -1,2 +1,2 @@
 ### 🖖
-I like physics amd computation.
+I like physics and computation.
