@@ -1,2 +1,2 @@
 ### 🖖
-I am currently studying computational physics 🪐☄️🧬
+I like physics amd computation.
